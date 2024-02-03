@@ -11,7 +11,7 @@
   <img src="https://64.media.tumblr.com/225fbdb4e0a4c95f2ba59153dfa0adc8/7173e688e7dc2e36-f2/s400x600/264f32c2b38002eea3c57ca9861d358480640596.gifv" alt="divi1">
 </p>
 <p align="center">
-<img src="https://im7.ezgif.com/tmp/ezgif-7-62a86bf03b.png" alt="divi2">
+<img src="https://media.discordapp.net/attachments/1145680459745996811/1203293566793945139/Untitleddesign81-ezgif.com-resize.png?ex=65d09176&is=65be1c76&hm=1465289d6e805aa69a60f978c9008493d54ba28cf1cba16b5a1368dae18ed504&=&format=webp&quality=lossless" alt="divi2">
 </p>
 <p align="center">
   <strong> location </strong>
@@ -32,7 +32,7 @@
   i am infj, 7<em>teen</em>, aries, pan, fem pronouns
 </p>
 <p align="center">
-   <img src="https://im7.ezgif.com/tmp/ezgif-7-03644eca7f.webp">
+   <img src="https://cdn.discordapp.com/attachments/1145680459745996811/1203293566387093524/tumblr_121f20342338460e2b62c94ffe47cc3a_3176db0f_1280-ezgif.com-resize.webp?ex=65d09176&is=65be1c76&hm=f1d4c1384d3a264e194c2de3d965ef24e9a3796f43674a07b535b672d069a102&">
 </p>
 <h6><p align="center">
   for more info, you may read any of the links...
