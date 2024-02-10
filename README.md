@@ -20,7 +20,10 @@
   you can usually find me around the hoyo area
 </p>
 <p align="center">
-  send me a whisp if you can't find me ^ o ^
+  this is me!
+</p>
+<p align="center">
+   <img src="https://cdn.discordapp.com/attachments/1145680459745996811/1205684188972458046/pony-town-im_literally_my_github_profile-trot-blinking-padded-4x.gif?ex=65d943e7&is=65c6cee7&hm=ec9bbbb9e01e5b6341284ad6760d7f54d76e47994f49fb737c8c85b250afe378&">
 </p>
 <p align="center">
    <img src="https://64.media.tumblr.com/f732795a70755651d05f03bb95b35bcb/7173e688e7dc2e36-73/s400x600/533e21faeed134469838cbb0bc17520ac1abe5a0.gifv">
