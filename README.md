@@ -11,9 +11,6 @@
   <img src="https://64.media.tumblr.com/225fbdb4e0a4c95f2ba59153dfa0adc8/7173e688e7dc2e36-f2/s400x600/264f32c2b38002eea3c57ca9861d358480640596.gifv" alt="divi1">
 </p>
 <p align="center">
-<img src="https://cdn.discordapp.com/attachments/1145680459745996811/1203293566793945139/Untitleddesign81-ezgif.com-resize.png?ex=65ec40f6&is=65d9cbf6&hm=9b3fd368727ddc6b696bed08df2da6931ed29053be9d639de809ddc1baad2e1f&" alt="divi2">
-</p>
-<p align="center">
   <strong> location </strong>
 </p>
 <p align="center">
