@@ -29,7 +29,7 @@
   <strong> some info! </strong>
 </p>
 <p align="center">
-  i am infj, 7<em>teen</em>, aries, pan, fem pronouns
+  i am infj, 8<em>teen</em>, aries, pan, fem pronouns
 </p>
 <p align="center">
    <img src="https://cdn.discordapp.com/attachments/1145680459745996811/1211969194233569300/tumblr_121f20342338460e2b62c94ffe47cc3a_3176db0f_1280-ezgif.com-resize.webp?ex=65f02145&is=65ddac45&hm=e82c1871a1eb6e839518749c56fe08f3e3245626797d8b49ed549691828d4eb8&">
