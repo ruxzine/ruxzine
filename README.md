@@ -6,6 +6,8 @@
 </p>
 <p align="center">
   you may call me <strong>reol</strong>, <strong>raze</strong>, or <strong>sheon</strong>
+  NOTE: PLEASE DON'T YOU EVER TALK NSFW STUFF IN FRONT OF ME. I AM 8TEEN BUT I AM NOT COMFORTABLE WITH IT!
+  WE'RE ALL IN THE SAFE SERVER AFTER ALL. STOP CURSING TOO, ADDRESSED TO ME OR IN FRONT OF MY FRIENDS!
 </p>
 <p align="center">
   <img src="https://64.media.tumblr.com/225fbdb4e0a4c95f2ba59153dfa0adc8/7173e688e7dc2e36-f2/s400x600/264f32c2b38002eea3c57ca9861d358480640596.gifv" alt="divi1">
